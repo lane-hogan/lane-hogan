@@ -1,4 +1,4 @@
-### I'm Lane, a mobile developer and hobbyist game developer 📱</div>
+### I'm Lane, a mobile developer 📱 and YouTube educator 🎥</div>
   
 
 - 🔭 I’m currently working on Fitful  
